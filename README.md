@@ -1,1 +1,1 @@
-amazing task
+amazing tasks
